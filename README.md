@@ -1,2 +1,2 @@
-# gits-msib4-tugas2
-My Personal Website
+Nama : Reni Jazilatulfawaidah
+Kampus : Universitas Sains Al Qur'an
